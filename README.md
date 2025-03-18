@@ -1,7 +1,7 @@
 ## 👋 Hi, I'm Cuong!  
 
 🎓 A **third-year student** at **University of Economics - University of Danang**  
-💻 Passionate about technology, especially **Business Analysis (BA)**  
+💻 Passionate about technology, Passionate about technology, with a strong interest in **Business Analysis (BA)**
 🚀 Currently looking for an **internship opportunity** in the tech industry to enhance my skills and gain real-world experience.  
 
 ## 🌐Socials
